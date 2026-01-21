@@ -1,0 +1,1 @@
+# vers-o-solo-sem-HOSPEDAR_MUNDO_ON
